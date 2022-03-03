@@ -1,2 +1,3 @@
 # Pokefont 
-This is a Pokémon font. I decided to make a Pokémon font because of the popularity of Pokémon. I will publish this font so that you can use my idea.
+این یک فونت پوکمون است. به دلیل محبوبیت پوکمون تصمیم گرفتم یک فونت پوکمون بسازم. من این فونت را منتشر می کنم تا از ایده من استفاده کنید.
+🨨🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼
